@@ -2,7 +2,7 @@
 
 ✦ **blot / dolly**  ◞ ㅤ**RP fictkin page**
 
-ㅤㅤ*they/them* ⤸
+ㅤㅤ*18, they/them* ⤸
 
 
 > c + h and int is encouraged!
