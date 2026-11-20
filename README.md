@@ -7,11 +7,13 @@
 ㅤㅤ*18, they/them* ⤸
 
 
-> c + h and int is encouraged!
+> c + h and int is encouraged! w2i heavily recommended!
 
 I LOVE TEXTING LIKE BLOT, if you dont like it just tell me!
 
 biggest fan of flutter x blot, but any ships can int!
+
+I don't mind doubles at all, go ahead and int! ^_^
 
 ![image](https://64.media.tumblr.com/8d12bb0a466b23dafe2cd89d134bfa0c/7b9f9028621791fe-1f/s540x810/72dad5f66fe7674dc407c3fba9184e7ec603306b.gifv)
 
